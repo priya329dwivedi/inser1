@@ -9,6 +9,6 @@ As we see around us in our day to day life pollution is becoming a serious threa
 Team Members
 Priya Dwivedi,
 Mukund Khandelwal,
-Mrinaline Bansal,
+Mrinalini Bansal,
 Jatin Gupta,
 Divyansh Jain
